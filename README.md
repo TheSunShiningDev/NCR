@@ -1,0 +1,2 @@
+# NCR
+N.C.R. is a young, energetic, and joyful author. He is currently 20 years old. He loves reading, and writing, and of course he loves his 8 brothers and sisters, and his parents too. N.C.R. is the founder of The Sunshining, creator of SunBible and author of over 15 books. He started his writing career in 2015 at the age of 15. And he plans to keep on writing, and glorifying God for years to come.
